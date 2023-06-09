@@ -1,1 +1,1 @@
-*Emphasize*
+*Emphazise*
